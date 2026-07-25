@@ -1,2 +1,2 @@
-# Universit-
+# Universite
 Pour mes projets universitaires 
